@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning offensive security 
 - 💞️ I’m looking to collaborate on? ¿
 - 📫 How to reach me 
-- 😄 Pronouns: il/Elle this is your cohis
+- 😄 Pronouns: il/Elle this is your choice 
 - ⚡ Fun fact: I'm gay end gender fluid 
  🤙🏻🏳️‍⚧️🏳️‍🌈🧑‍💻📨
 <!---
